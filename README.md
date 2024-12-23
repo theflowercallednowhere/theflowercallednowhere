@@ -3,7 +3,7 @@
 
 <div align="center"> hai im ellie!! i go by she/they 🐈
 
-<div align="center"> 13 𖤓 pagan 𖤓 lesbian 𖤓 enfp
+<div align="center"> 13 𖤓 pagan 𖤓 bisexual 𖤓 enfp
 
 ![image](https://github.com/user-attachments/assets/b2b62406-bfdd-49c0-ab64-372e0a37ccf0)![image](https://github.com/user-attachments/assets/1ed4f4eb-3fd3-4f11-a53c-f0d014897d17)
 
